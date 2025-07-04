@@ -5,7 +5,7 @@
 
 ## YOUTUBE LINK https://youtu.be/VsQ9DdqIiCU
 
-## ACADEMIA PDF : 
+## ACADEMIA PDF : https://ftumj.academia.edu/MohammadDaffa
 
 ### MEMBER :
 - 24040700107 M.Daffa
